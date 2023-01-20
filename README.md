@@ -1,6 +1,6 @@
 Hi!!
 
-im a trans dude
+im a trans masc
 
 he/they/it
 
