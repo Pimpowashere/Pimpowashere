@@ -4,7 +4,7 @@ My name is tang, but I usually go by pimp. or u can call me deimos or pizza
 
 Im a silly artist
 
-Current hyperfixation: Lego monkie kid 
+Current hyperfixation: Lego monkie kid and Ninjago...
 
 Just so you know i may not talk much when u first interact with me, my mental healt rlly sucks so interact with caution, pls and ty.
 
