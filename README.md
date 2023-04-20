@@ -11,5 +11,3 @@ Just so you know i may not talk much when u first interact with me, my mental he
 Int plz: Lmk, Sth, Baldi's Basics, Batim, Murder Drones, Pico's School, Undertale/Deltarune, and more stuff I forgor ^_^
 
 Dni..: Basic dni stuff, New sm fans, Candybats, problematic ppl, and mha fans.
-
-Shoutout to my gf, hope ur doing well darling <3
