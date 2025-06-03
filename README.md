@@ -1,13 +1,7 @@
-Hi.
+haii :3
 
-My name is tang, but I usually go by pimp. or u can call me deimos or pizza
+they/them
 
-Im a silly artist
+black + 5teen
 
-Current hyperfixation: Lego monkie kid and Ninjago...
-
-Just so you know i may not talk much when u first interact with me, my mental healt rlly sucks so interact with caution, pls and ty.
-
-Int plz: Lmk, Sth, Baldi's Basics, Batim, Murder Drones, Pico's School, Undertale/Deltarune, and more stuff I forgor ^_^
-
-Dni..: Basic dni stuff, New sm fans, Candybats, problematic ppl, and mha fans.
+neurodivergent
