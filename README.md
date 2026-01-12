@@ -6,3 +6,7 @@ im usually in the deltarune/undertale area or near the lego/splatoon area, but u
 i dont rp fr, dont rp with me unless u ask
 
 i just be chillin lwk
+
+spam accounts do nawt follow me okay? okay.
+
+lowk sliming rammi poobutt
