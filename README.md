@@ -1,12 +1,16 @@
 
 this is mainly 4 pony town,,, 
 
-im usually in the deltarune/undertale area or near the lego/splatoon area, but u might find me somewhere else if im with a friend
+usually at dt/ut area, might ocassionally be somewhere else
 
-i dont rp fr, dont rp with me unless u ask
+do not come up roleplaying with me randomly
 
-i just be chillin lwk
+hi
 
-spam accounts do nawt follow me okay? okay.
+awkward bum
 
-lowk sliming rammi poobutt
+i like 2 play and draw
+
+read my strawpage or ill slime u lowk(lie but plz read it ok)
+
+love my oomfs mwa mwa ram ur getting SLIMED/p
