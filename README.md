@@ -14,5 +14,3 @@ awkward bum
 i like 2 play and draw
 
 read my strawpage or ill slime u lowk(lie but plz read it ok)
-
-love my oomfs mwa mwa ram ur getting SLIMED/p
