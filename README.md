@@ -7,5 +7,5 @@
 
 ⁞ ✩ usually in dt/ut area or ill move to other areas such as sonic, lego, or splatoon area okay
 
-⁞ ✩ idk what else to say umummm i like sonic a lot rn (hyperfixation)
+⁞ ✩ idk what else to say umummm i like surge btw ;w;
 ————✮⋆˙————
